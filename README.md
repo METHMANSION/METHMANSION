@@ -13,3 +13,12 @@
   <img src="https://gifcity.carrd.co/assets/images/gallery49/abc5acb3.png?v=e3c0bc0f" />
 </p>
 
+<p align="center">
+<sub>  I FIND IT FUN TO SPEND MY TIME ONLINE EITHER GOING THROUGH PROFILES & LURKING, MAKING FRIENDS OR SOMETIMES CAUSING AN UNCOMFORTABLE ATMOSPHERE. IT'S IN GOOD FUN AND NOT ILL-INTENTIONED. IF YOU GET MAD AT ME WHEN I DO THIS, I OWN YOU PSYCHOLOGICALLY IN MY MIND HAREM. NOTHING CAN CHANGE THAT. I LOVE YOU. </sub>
+</p>
+
+<p align="center">
+<sub>  
+<a href="https://cadaverine.page/">ALL LINKS & MORE INFO HERE.</a>
+ </sub>
+</p>
