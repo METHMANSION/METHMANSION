@@ -23,7 +23,7 @@
 
 <p align="center">
 <sub>  
-<a href="https://cadaverine.straw.page/">ALL LINKS & MORE INFO HERE.</a>
+<a href="https://guns.lol/formaldehyde">ALL LINKS & MORE INFO HERE.</a>
  </sub>
 </p>
 <p align="center">
