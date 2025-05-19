@@ -30,6 +30,8 @@
   <img src="https://i.postimg.cc/Cx5CDKRQ/Screenshot-2025-05-16-at-02-03-56-Putrescine-Wikipedia.png"
 )"/> </p>
 <p align="center">
+    <img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=454545&rightColor=dbcab7&type=total&label=LURKERS&style=none" alt="Views Counter">
+    
 <p align="center">
     <sup>pfp by @ afternear</sup>
 </p>
