@@ -30,3 +30,6 @@
   <img src="https://i.postimg.cc/Cx5CDKRQ/Screenshot-2025-05-16-at-02-03-56-Putrescine-Wikipedia.png"
 )"/> </p>
 <p align="center">
+<p align="center">
+    <sup>pfp by @ afternear</sup>
+</p>
