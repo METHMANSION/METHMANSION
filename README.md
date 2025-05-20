@@ -30,7 +30,7 @@
   <img src="https://i.postimg.cc/Cx5CDKRQ/Screenshot-2025-05-16-at-02-03-56-Putrescine-Wikipedia.png"
 )"/> </p>
 <p align="center">
-   <img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=333333&rightColor=c2ad8f&type=total&label=VIEWCOUNT&style=none" alt="Views Counter">
+   <img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=000000&rightColor=806f66&type=total&label=SUPERFANS&style=none" alt="Views Counter">
     
 <p align="center">
     <sup>pfp by @ afternear</sup>
