@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  <img src="https://gifcity.carrd.co/assets/images/gallery49/abc5acb3.png?v=e3c0bc0f" />
+  <img src="https://gifcity.carrd.co/assets/images/gallery39/a773466e.gif?v=e3c0bc0f" />
 </p>
 
 <p align="center">
@@ -23,15 +23,18 @@
 </p>
 
 <p align="center">
-<sub>  
-<a href="https://guns.lol/formaldehyde">XOXO.</a>
- </sub>
+
 </p>
 <p align="center">
-  <img src="https://i.postimg.cc/Cx5CDKRQ/Screenshot-2025-05-16-at-02-03-56-Putrescine-Wikipedia.png"
+  <img src="https://graphic.neocities.org/button_33.gif"
 )"/> </p>
 <p align="center">
-   <img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=000000&rightColor=806f66&type=total&label=SUPERFANS&style=none" alt="Views Counter">
+  <img src="https://i.postimg.cc/13QRbm1F/Screenshot-2025-06-06-at-17-43-29-Putrescine-and-Cadaverine-American-Chemical-Society.png" />
+</p>
+<p align="center">
+<img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=cf3444&rightColor=000000&type=total&label=XOXO&style=none" alt="Views Counter">
+
+
     
 <p align="center">
     <sup>pfp from musedash</sup>
