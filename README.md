@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-   UNDER 18 DO NOT FRQ.
+   UNDER 18 DO NOT INT. 
 </p>
 
 <p align="center">
