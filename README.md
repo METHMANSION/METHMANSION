@@ -32,7 +32,7 @@
   <img src="https://i.postimg.cc/13QRbm1F/Screenshot-2025-06-06-at-17-43-29-Putrescine-and-Cadaverine-American-Chemical-Society.png" />
 </p>
 <p align="center">
-<img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=cf3444&rightColor=000000&type=total&label=XOXO&style=none" alt="Views Counter">
+<img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=9950c0&rightColor=000000&type=total&label=-%20XOXO%20%2E&style=none" alt="Views Counter">
 
 
     
