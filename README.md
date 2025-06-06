@@ -7,23 +7,21 @@
 </p>
 
 <p align="center">
-    <sup>CALNE ⌖ 19 ⌖ HE / HIM </sup>
-</p>
-<p align="center">
   <img src="https://gifcity.carrd.co/assets/images/gallery49/abc5acb3.png?v=e3c0bc0f" />
 </p>
 
 <p align="center">
-    UNDER 18 DO NOT INTERACT
+   UNDER 18 DO NOT FRQ.
 </p>
 
 <p align="center">
-<sub> I SIT BY DOCKS & SPAWN W/MY FIANCE. SOMETIMES OFFTAB, WHISPER AND I'LL GET BACK TO YOU! NO DNI READ MY BYI IF SHIT TENDS TO BOTHER YOU. IF YOU GET MAD AT ME FOR EXISTING I OWN YOU PSYCHOLOGICALLY IN MY MIND HAREM & I LOVE YOU</sub>
+<sub> BY DOCKS & SPAWN W/MY FIANCE. READ MY BYI IF THINGS TEND TO BOTHER YOU. 
+    IF YOU GET MAD AT ME FOR EXISTING I OWN YOU PSYCHOLOGICALLY IN MY MIND HAREM. </sub>
 </p>
 
 <p align="center">
 <sub>  
-<a href="https://guns.lol/formaldehyde">ALL LINKS & MORE INFO HERE.</a>
+<a href="https://guns.lol/formaldehyde">XOXO.</a>
  </sub>
 </p>
 <p align="center">
@@ -33,5 +31,5 @@
    <img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=000000&rightColor=806f66&type=total&label=SUPERFANS&style=none" alt="Views Counter">
     
 <p align="center">
-    <sup>pfp by @ afternear</sup>
+    <sup>pfp by @ otsukai_chan</sup>
 </p>
