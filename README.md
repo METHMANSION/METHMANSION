@@ -1,9 +1,12 @@
 <p align="center">
-    <sup>EZEKIEL 35:8</sup>
+    <sup> -18 DNI. I HAVE A LOT OF NSFW INTERESTS AND DISCUSSIONS. </sup>
 </p>
 
+
+
+
 <p align="center">
-  <img src="https://i.postimg.cc/g2c4Mp5c/2e3149a4631688c5035434b2f006a17a.jpg" />
+  <img src="https://i.postimg.cc/yNm5JKDF/d0b4afaeea4b96e649808c36598ece65.jpg" />
 </p>
 
 <p align="center">
@@ -11,7 +14,7 @@
 </p>
 
 <p align="center">
-   UNDER 18 DO NOT INT. 
+   ˚ ༘ ೀ⋆｡˚
 </p>
 
 <p align="center">
@@ -31,5 +34,5 @@
    <img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fputrescine%2Fputrescine&leftColor=000000&rightColor=806f66&type=total&label=SUPERFANS&style=none" alt="Views Counter">
     
 <p align="center">
-    <sup>pfp by @ otsukai_chan</sup>
+    <sup>pfp from musedash</sup>
 </p>
